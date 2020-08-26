@@ -6,6 +6,6 @@ I’m a PhD student (Social Communication & Media Studies).
 - 🎓  I’m currently working on air quality information management.
 - 🎏 I’m currently creating my portfolio website and projects on Glitch.
 - 💬  Ask me about information management, SEO, information search.
-- 📫  How to reach me: gawehanna@gmail.com or Twitter [@vanitachi]
-- 😄  My academic website: (hanna-gawel-academic.tumblr.com/research)
-- 🚴🏽‍♀️  Fun fact: I love reading books, cycling, stick post-it cards everywhere and cycling.
+- 📫  How to reach me: gawehanna@gmail.com or Twitter [@vanitachi] (https://twitter.com/vanitachi)
+- 😄  My academic website: (https://www.hanna-gawel-academic.tumblr.com/research)
+- 🚴  Fun fact: I love reading books, cycling, stick post-it cards everywhere and cycling.
