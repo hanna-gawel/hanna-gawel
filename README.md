@@ -4,7 +4,7 @@
 
 I’m a PhD student (Social Communication & Media Studies). 
 - 🎓  I’m currently working on air quality information management.
-- 💬  Ask me about information management, SEO, information search.
-- 📫  How to reach me: gawehanna@gmail.com or Twitter [@GawelHanna] (https://twitter.com/GawelHanna)
+- 💬  Ask me about information management, SEO, information search, data literacy.
+- 📫  How to reach me: gawehanna@gmail.com or Twitter (https://twitter.com/gawel_hanna)
 - 😄  My academic website: (https://www.hanna-gawel-academic.tumblr.com/about)
-- 🚴  Fun fact: I love reading books, cycling, stick post-it cards everywhere and cycling.
+- 🚴  Fun fact: I love reading books, car driving, stick post-it cards everywhere & listening to podcasts.
