@@ -24,4 +24,11 @@ Hi, I'm Hanna 👋<br>I’m a PhD student (Social Communication & Media Studies)
 ---
 [![](https://visitcount.itsvg.in/api?id=hanna-gawel&icon=0&color=5)](https://visitcount.itsvg.in)
 
+### Thanks for Visiting my GitHub Profile!
+
+---
+<p align="center">
+<img src="https://github.com/hanna-gawel/hanna-gawel/blob/master/github-contribution-grid-snake.gif">
+  
+</p>
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
