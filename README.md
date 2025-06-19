@@ -1,5 +1,5 @@
-# 💫 About Me:
-Hi, I'm Hanna 👋<br>I’m a PhD student (Social Communication & Media Studies).<br><br>🎓 I’m currently working on air quality information management.<br>💬 Ask me about information management, SEO, information search, data literacy.<br>📫 How to reach me: gawehanna@gmail.com or Twitter (https://twitter.com/gawel_hanna)<br>😄 My academic website: (https://www.hanna-gawel-academic.tumblr.com/about)<br>🚴 Fun fact: I love reading books, car driving, stick post-it cards everywhere & listening to podcasts.
+# About Me:
+Hi, I'm Hanna 👋
 
 
 ## 🌐 Socials:
